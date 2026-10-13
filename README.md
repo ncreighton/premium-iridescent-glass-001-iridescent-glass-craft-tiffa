@@ -1,0 +1,2 @@
+# premium-iridescent-glass-001-iridescent-glass-craft-tiffa
+Tired of iridescent glass projects that shatter your confidence? Finally master the Tiffany technique and turn those stunning, shimmering shards into polished, display-worthy art.  This workshop eliminates the guesswork by combining expert guidance on iridescent glass selection with the precise copper foil method. You'll move from frustrated beginn
